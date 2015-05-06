@@ -1,0 +1,1 @@
+ºìÃ×1S£¬MSM8226£¬´úºÅarmani£¬recovery_device
